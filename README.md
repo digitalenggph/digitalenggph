@@ -1,4 +1,5 @@
-![image](https://github.com/digitalenggph/digitalenggph/assets/101250873/1fff3460-282c-4a7f-bca0-a5aea8b945e8)
+![image](https://github.com/digitalenggph/digitalenggph/assets/101250873/1a879931-74b1-4842-9098-b3035145c2b6)
+
 
 ### Hi there 👋
 
