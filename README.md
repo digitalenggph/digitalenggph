@@ -2,7 +2,7 @@
 
 ![image](https://github.com/digitalenggph/digitalenggph/assets/101250873/adb840f2-5c2d-46cb-94e5-d733492eb59f)
 
-Karen here 👋 Civil engineer X data enthusiast who's currently trasitioning to tech world 🌍⚙️
+Karen here 👋 Civil engineer X data enthusiast who's currently transitioning to tech world 🌍⚙️
 
 
 <!--
